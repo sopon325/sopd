@@ -1,0 +1,1 @@
+const offerLink = "https://easygirlsa3mf.com/?utm_source=GKh572OcbWYIo&utm_campaign=Sgvv";
